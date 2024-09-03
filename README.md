@@ -8,3 +8,4 @@ https://bom.firpo.ru/Public/86
 Страница 23-25 пример задания по дему
 
 Доска:
+https://www.yougile.com/team/a88d30e5062d/demoexa
